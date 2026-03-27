@@ -1,4 +1,4 @@
-# -AnonymousOlix# Hi 👋, I'm AnonymousOlix
+# AnonymousOlix# Hi 👋, I'm AnonymousOlix
 
 🚀 Passionate Developer | Learning Everyday
 
